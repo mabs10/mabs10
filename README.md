@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Mabel
+- 👀 I’m interested in math and science
+- 🌱 I’m currently learning nursery and the basic subjects
